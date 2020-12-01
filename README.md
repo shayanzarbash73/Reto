@@ -1,0 +1,10 @@
+fgbfg
+ngf
+fg
+n
+fnf
+gn
+nf
+n
+gn
+n
